@@ -6,7 +6,7 @@ I think in systems. I imagine in pictures. I do my best work in small, fast team
 
 **Looking for:** an early-stage B2B enterprise tool to join, as co-founder or fractional product manager.
 
-🌍 Berlin · Hybrid or remote · [imkatriina.com](https://imkatriina.com)
+Berlin · Hybrid or remote · [imkatriina.com](https://imkatriina.com)
 
 ---
 
