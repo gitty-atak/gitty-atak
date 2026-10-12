@@ -6,7 +6,7 @@ Most of my experience is in enterprise internal tools: CRM, integrations, intran
 
 I think in systems and visualize the whole flow before building. I do my best work in small, fast teams, whether in an enterprise or an early-stage startup.
 
-**Looking for:** an early-stage B2B tool to join as a co-founder or fractional product manager.
+**Looking for:** an early-stage B2B tool to join or fractional product manager.
 
 Berlin · Hybrid or remote · [imkatriina.com](https://imkatriina.com)
 
